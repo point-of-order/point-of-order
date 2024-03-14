@@ -3,7 +3,7 @@
 <p align="center">
 <img src="https://i.pinimg.com/originals/cf/25/18/cf25185b1454d603b220fc120a78420b.gif" width="200px">
 <br><br><b> :3 < hey this is my alt !!! I use this 4 my ocs ^ ^ why ? because I can :P </b>
-<br><a href="https://github.com/vilipender">main account</a> + <a href="https://malediction.123guestbook.com/">my guestbook!</a> <br><br>
+<br><a href="https://github.com/vilipender">main account</a> ++ <a href="https://malediction.123guestbook.com/">my guestbook!</a> <br><br>
   
 <p align="center">
    <img src="https://camo.githubusercontent.com/cc2e954a468cb59d6c712140717d5b6ffd192a95c079a9db474d354b9e073eed/68747470733a2f2f36342e6d656469612e74756d626c722e636f6d2f63333962616136396234616433623832666566326238653130613563346663312f303765383062643732336433626638322d32612f73313030783230302f663136306463626538636433373736663761643836626235623433306437323334376236643435322e706e6a" width="85px"> <img src="https://64.media.tumblr.com/0bf344c5582728f0fb02573b7ded63d2/8bdeba2cbc867670-1c/s100x200/5bd6b04b2ab6f3b35c48d61dac6f2675d539853c.gifv" width="85px"> <img src="https://64.media.tumblr.com/e328ee0f3f80c5d6596378979e7f7988/b3d83bbf44993478-7f/s100x200/4c8aafca73e51867644cf0ffd5b3e0d84797a320.pnj" width="85px"> 
